@@ -1,0 +1,4 @@
+- **Reference ⬇️**
+  - [LEAFS](https://www.freepik.com/premium-vector/plant-leafs-icons-set-flat-style_5067694.htm#fromView=search&page=1&position=32&uuid=049b9341-d491-4e68-9d0f-24cd76e703ca)
+  - [PATTERN](https://www.vecteezy.com/vector-art/1952940-tree-branches-seamless-pattern)
+  - [ONLINE TUTORIALS VIDEO](https://youtu.be/fD_AuhsheuU?si=jcbecP61FFNQOZPH)
